@@ -1,0 +1,1 @@
+# rikorohmaxv87.github.io
